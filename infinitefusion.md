@@ -2,6 +2,8 @@
 
 https://www.pokecommunity.com/showthread.php?t=347883
 
+General feeling: liked it
+
 ## Like
 
 - The game's purpose is to let the player fuse any Pokemon. And it works pretty well!
