@@ -11,6 +11,7 @@ General feeling: liked it
 - TMs are good and easy to access (Nasty Plot, ...)
 - Custom battlers which brings immersion.
 - In general, it's a really fun ride.
+- The plot variation are based on some official content (Bill fusion, legendary birds fusion)
 - Felt like a savior when I disabled Team Rocket fusion machine.
 
 ## Dislike
